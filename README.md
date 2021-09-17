@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+大家好，我是Shure
+- 新时代的农民工
+- 写作爱好者，欢迎关注我的公众号：治恒说说
