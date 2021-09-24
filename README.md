@@ -17,3 +17,6 @@ Here are some ideas to get you started:
 大家好，我是Shure
 - 新时代的农民工
 - 写作爱好者，欢迎关注我的公众号：治恒说说
+- 想要勾搭我？加微信：DShure
+![治恒说说](https://i.loli.net/2021/01/26/fuv35srW68xAnID.jpg)
+![DShure.jpg](https://i.loli.net/2021/09/24/phyFgHGcXQz4vfs.jpg)
