@@ -18,8 +18,3 @@ Here are some ideas to get you started:
 - 新时代的农民工
 - 写作爱好者，欢迎关注我的公众号：治恒说说
 - 想要勾搭我？加微信：DShure
-
-<p>
-	<img src="https://i.loli.net/2021/09/24/phyFgHGcXQz4vfs.jpg" style="width:200px;" />
-	<img src="https://i.loli.net/2021/01/26/fuv35srW68xAnID.jpg" style="width:200px;" />
-</p>
